@@ -3,4 +3,3 @@ A portfolio of climate and environmental writing aimed at translating complex da
 
 [The Polar Vortex Set to Bring Arctic Air to the United States through December (December 2025)](Polar-Vortex-Piece.pdf)
 
-[Ice, Ice Maybe](Ice-Ice-Maybe.docx)
